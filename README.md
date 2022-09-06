@@ -1,1 +1,1 @@
-read me for shell permission`
+read me for shell periiifiiiimission`
